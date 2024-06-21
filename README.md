@@ -1,7 +1,3 @@
- Hi, I’m sia, but you can call me 'sis' 
- I’m interested in programming,
- learning new languages and self development. 
-
-              New developer, hope you'll 
-              accept me into you're friendly
-              community ^^.
+Hello, brothers and sisters - programmers. 
+I'ma new in your community, so let's build the strongest and warmest relations together<3
+ 
